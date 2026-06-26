@@ -4,3 +4,5 @@
 
 Ссылка на презентацию в Гугл Презентациях: 
 https://docs.google.com/presentation/d/1qfGRy3hu_anU66jE-FoxNIu5RRO9gItreea20K5uVeo/edit?slide=id.p#slide=id.p
+
+Также презентация загружена здесь (файл DH проект.pptx)
